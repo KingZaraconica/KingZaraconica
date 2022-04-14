@@ -1,4 +1,4 @@
-### Hi there 👋
+### I am KingZaraconica, please subscribe to my channel because this project took a long time. The name is KingZaraGSA on Youtube
 
 <!--
 **KingZaraconica/KingZaraconica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
