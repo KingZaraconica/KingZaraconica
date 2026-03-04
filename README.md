@@ -1,4 +1,4 @@
-### I'm a student
+### Student at Monarch High School, Class of 2028
 <!--
 **KingZaraconica/KingZaraconica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
